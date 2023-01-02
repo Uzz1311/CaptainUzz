@@ -12,7 +12,7 @@ What do you do in your free time?
 I nerding at some videogames and program Minecraft mods for my friends :) 🎮
 
 Where can I contact you?
-I am always available on Telegram (@UzzReal)!👌
+I am always available on Telegram (@UnbeatableUzz)!👌
 
 See you on GitHub!👋
 
